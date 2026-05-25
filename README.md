@@ -1,1 +1,1 @@
-https://waseem087.github.io
+https://waseem.site
